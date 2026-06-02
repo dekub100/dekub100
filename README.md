@@ -1,10 +1,8 @@
-Hey i'm dekub
+# Hey, I'm dekub 
 
-# Discord: 
-**dekub100**
+### 📬 Contact & Socials
+[dekub.eu](https://dekub.eu)
 
+or 
 
-Contact me if you have anything to talk about
-
-## My socials:
-@dekub100 on everything
+`@dekub100` everywhere — Discord, Twitter/X, Instagram, or wherever else you can think of.
